@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JACK201588
-- 👀 I’m interested in ...
+- 👀 I am interested in many things.
 - 🌱 I’m currently learning GITHUB.
 - 💞️ I want to work with people who have ideas and ideas.
 - 📫 How to contact me, follow me on Github.
